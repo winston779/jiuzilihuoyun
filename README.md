@@ -1,6 +1,6 @@
 # 九紫离火云官网地址
 
-最新地址：[123xxx456.xyz](https://abc.thesyeec7l60ouav1lz0tesk.top/#/register?code=GiCfNyKU)
+最新地址：[123xxx456.xyz](https://ak.123xxx456.filegear-sg.me/#/register?code=GiCfNyKU)
 
 ## 九紫离火云介绍
 
